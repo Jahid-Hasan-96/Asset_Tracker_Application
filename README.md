@@ -25,7 +25,7 @@ For giving me the opportunity to show my skills for their ongoing recruitment pr
 
 ## Feedback
 
-Feel free to contact me if you have any further queries, at: <jahid15@cse.pstu.ac.bd>
+Feel free to contact me if you have any further queries, at: <mmjahidhasan96@gmail.com> or, <jahid15@cse.pstu.ac.bd>
 
 You can connect with me on LinkedIn.
 [![Linkedin](https://i.stack.imgur.com/gVE0j.png) LinkedIn](https://www.linkedin.com/in/mmjahidhasan/)
